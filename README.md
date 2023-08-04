@@ -1,1 +1,1 @@
-# More than 1500 logos
+# More than 950 SVG logos
